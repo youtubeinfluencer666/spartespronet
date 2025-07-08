@@ -24,6 +24,6 @@ After installing the Dowloader app and setting up your Firestick to sideload app
 
 2. Go to the Apps menu from the FireStick home…
 
-Full Article Here : [Link](https://officieliptvsmarterspro.org/)
+Full Article Here : [iptv smarters pro](https://officieliptvsmarterspro.org/)
 
 3. Open the Downloader app and select the Enter a https://officieliptvsmarterspro.org/
